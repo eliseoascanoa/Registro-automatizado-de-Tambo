@@ -1,1 +1,0 @@
-# Registro-automatizado-de-Tambo
